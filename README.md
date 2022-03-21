@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sagarpapai
-- 👀 I’m interested in Geo-Politics, Sports, Video games
+- 👀 I’m interested in Geo-Politics, Sports, Video games, History, Finance
 - 🌱 I’m currently learning everything there is to learn
 - 💞️ I’m looking to collaborate on anywhere possible
 - 📫 How to reach me sagar6bhattacharjee@gmail.com
